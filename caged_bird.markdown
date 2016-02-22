@@ -22,6 +22,7 @@ so he opens his throat to sing.
 
 ### Verse 3
 
+
 The caged bird sings
 with fearful trill
 of the things unknown
